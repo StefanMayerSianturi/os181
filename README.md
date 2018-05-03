@@ -12,3 +12,9 @@ ZCZC W04
 ZCZC W05 pekan ini sudah disini
 
 ZCZC W06 Yeay!
+
+ZCZC W07 Lewat.
+
+ZCZC W08 Yeay!
+
+ZCZC W09 pekan ini sudah disini.
